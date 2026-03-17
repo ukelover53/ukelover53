@@ -1,9 +1,10 @@
 <div align="center">
   
-  ![](https://64.media.tumblr.com/12a42a058fa46c44fa48cf7803e3f6e5/eca2388a53eb9643-26/s400x600/9d1ac0f79d498e6c10bfad14f36283b3c0e85e01.pnj)
+  ![made by alkakvrei on tumblr](https://64.media.tumblr.com/4aff4631c32696592975d8e141f6601f/a98a91872f568333-3d/s1280x1920/55383953175e7c35a47031bb799d5ea96aa6ae28.gif)
 
-$\color{red}\text{HI I'M UKE LOVER 53 / BAM}$
+$\color{orange}\text{HI I'M BAMMY}$
 
-[insta](https://instagram.com/y.ibam) ![](https://pixelsafari.neocities.org/favicon/fashion/bow/black7.gif) [ata](https://yibam.atabook.org) ![](https://pixelsafari.neocities.org/favicon/nature/plant/flower/red4.gif) [prnscc](https://pronouns.cc/@wiege)
-  
+$\color{orange}\text{HE/HIM FEMBOY I LOVE UKES}$
+
+[insta](https://instagram.com/y.ibam) ![](https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif) [ata](https://yibam.atabook.org) 
 </div>
