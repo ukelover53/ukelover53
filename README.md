@@ -8,5 +8,5 @@ $\color{pink}\text{HE/HIM FEMBOY}$
 
 $\color{pink}\text{KOREAN CANADIAN ENG/FR}$
 
-$\color{pink}\text{ [insta](https://instagram.com/y.ibam) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/crystal6.gif) [ata](https://yibam.atabook.org)  }$
+[insta](https://instagram.com/y.ibam) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/crystal6.gif) [ata](https://yibam.atabook.org)
 </div>
