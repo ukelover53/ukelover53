@@ -1,6 +1,6 @@
 <div align="center">
   
-  ![](https://64.media.tumblr.com/7bcae87dc0ad06a068503f2005173e49/2732bdc02f83e6f7-d6/s540x810/7c350eb50c0a23130ea8197df6beb952b318ac39.gif)
+  ![](https://64.media.tumblr.com/aa9d5a9cfebf4133be18c0469ea91676/115d1e2a9a3fac0f-ca/s2048x3072/cf90dd970cf08fb4ac4bcd27eecbb475e5605337.pnj)
 
 $\color{pink}\text{HI I'M BAMMY}$
 
