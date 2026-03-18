@@ -1,10 +1,12 @@
 <div align="center">
   
-  ![made by alkakvrei on tumblr](https://64.media.tumblr.com/4aff4631c32696592975d8e141f6601f/a98a91872f568333-3d/s1280x1920/55383953175e7c35a47031bb799d5ea96aa6ae28.gif)
+  ![](https://64.media.tumblr.com/7bcae87dc0ad06a068503f2005173e49/2732bdc02f83e6f7-d6/s540x810/7c350eb50c0a23130ea8197df6beb952b318ac39.gif)
 
-$\color{orange}\text{HI I'M BAMMY}$
+$\color{pink}\text{HI I'M BAMMY}$
 
-$\color{orange}\text{HE/HIM FEMBOY I LOVE UKES}$
+$\color{pink}\text{HE/HIM FEMBOY}$
 
-[insta](https://instagram.com/y.ibam) ![](https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow5.gif) [ata](https://yibam.atabook.org) 
+$\color{pink}\text{KOREAN CANADIAN ENG/FR}$
+
+$\color{pink}\text{ [insta](https://instagram.com/y.ibam) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/crystal6.gif) [ata](https://yibam.atabook.org)  }$
 </div>
